@@ -1,4 +1,4 @@
-# :mouse2: Hi, I'm Bertima &nbsp; | &nbsp; Junior Software Engineer
+# :mouse2: Hi, I'm Bertima &nbsp; | &nbsp; Junior Software Developer
 
 Curious about everything, fearless in the face of any challenge. Every new project is an opportunity to build something great.
 
